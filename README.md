@@ -1,6 +1,6 @@
 - 👋 Hi, we're @ALO-AngelsGroup
 - 👀 We're Angels
-- 🌱 We're currently built a community who are living in ecosystem in Angels Town.
+- 🌱 We're currently build communities who are living in ecosystem in Angels Town.
 - 💞️ We're looking for someone who want to join our town where can help each other.
 - 📫 Contact us on our website: https://alo-coin.com
 
