@@ -2,7 +2,7 @@
 - 👀 We're Angels
 - 🌱 We're currently build communities who are living in ecosystem in Angels Town.
 - 💞️ We're looking for someone who want to join our town where can help each other.
-- 📫 Contact us on our website: https://alo-coin.com
+- 📫 Contact us on our website: https://alo-coin.com or email: info@alo-coin.com
 
 <!---
 ALO-AngelsGroup/ALO-AngelsGroup is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
